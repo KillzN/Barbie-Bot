@@ -1,4 +1,4 @@
-/*              Codigo Creado Por KillzN
+/*              Codigo Creado Por Barbie
       (https://chat.whatsapp.com/FFB0fgdK3IP4ZEmZ8jF1CC)
 */
 
